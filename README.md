@@ -24,4 +24,3 @@ I'm currently working as a UI/UX Designer & Frontend developer in India, where m
 
  For a quick response, DM me on [Instagram](https://www.instagram.com/_abhi_1599/) or [LinkedIn](https://www.linkedin.com/in/abhishek-guleria-99abbb264/). 
  For professional inquiries, reach out via email at [abhishekguleria1599@gmail.com](abbuguleria1599@gmail.com). 
-![image](https://github.com/abhig1599/abhig1599/assets/120269927/e1c90709-d84c-463e-844a-4493c8e27d5f)
